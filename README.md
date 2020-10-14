@@ -1,0 +1,1 @@
+# AMMI-AIMS-Ghana bootcamp
